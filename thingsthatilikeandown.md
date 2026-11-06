@@ -1,4 +1,4 @@
-# things that i like / own
+# things that i like
 > in case you need a reference list
 
 ## games
